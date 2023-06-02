@@ -13,7 +13,7 @@
 
 - 🌐 Você pode entrar em contato comigo pelo email **alysondmares@gmail.com**
 
-- 💭 Fun fact **trabalho inspirado se estiver ouvindo Péricles**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
